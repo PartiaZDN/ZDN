@@ -1,0 +1,2 @@
+# ZDN
+Polska partia polityczna
